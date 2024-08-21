@@ -12,7 +12,7 @@ Canto bem, toco um violão e uma viola que é uma beleza
 
 As musicas que eu curto são as bens antigas sertanejo raiz
 
-Sou muito educado e respeituoso
+Sou muito educado e respeitoso
 
 Pretendo cursar agronomia
 
